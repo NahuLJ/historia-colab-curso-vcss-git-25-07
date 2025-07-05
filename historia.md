@@ -39,7 +39,13 @@ peligroso. “Eso no debería estar ahí…”, murmuró.
 ## Capítulo 08: El umbral prohibido
 Guiado por símbolos similares a su marca, Adam llegó a una puerta de piedra en
 lo profundo del bosque. Al tocarla, esta tembló suavemente y comenzó a abrirse,
-como si lo reconociera.
+lentamente, por arte de magia y en su interior algo brillaba.
+Se abrio la puerta y en su interior se encontraba un cofre tan brillante que,
+Adam se asombro de lo que estaba viendo, Y como era de esperar el cofre tenia
+una cerradura con una forma de una figura encapuchada.Entonces Adam marco
+su ubicacion en el mapa y fue en busca de esa figura que habia visto previamente
+en algun momento. 
+
 
 ## Capítulo 09: Más allá del umbral
 El mundo al otro lado desafiaba las leyes de la realidad. El cielo era de un
